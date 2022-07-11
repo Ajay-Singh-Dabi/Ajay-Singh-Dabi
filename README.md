@@ -7,7 +7,7 @@
 
 📫 How to reach me ajaydabi20@gmail.com
 
-📄 Know about my experiences https://drive.google.com/file/d/15wHKsTQBAuiixV1wTt6s-hVHH9sBOGhJ/view?usp=sharing
+📄 Know about my experiences https://drive.google.com/file/d/1qCyt1RuWn4xPYMpNZuUGiAtlpcxWmSRB/view?usp=sharing
 
 ## 🌐Socials
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/ajaysingh.dabi) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/ajay-singh-200) 
